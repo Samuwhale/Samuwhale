@@ -15,19 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+🌐 Check out my website: spithorst.net
 
-I'm Samuel, a tech enthusiast with a strong passion for UX Design, Mixed Reality, and Gaming. My journey began with a Bachelor's in Information Science, and I'm currently pursuing my Master's in Human-Computer Interaction.
+🕹️ Play my games on itch.io: sambono.itch.io
 
-With a background in theater, I bring a unique perspective to creating engaging and user-friendly experiences. I believe in the power of technology to make a positive impact on people's lives.
-
-I'm always eager to collaborate on projects and apply my skills to innovate and create meaningful solutions. Let's connect and explore how we can work together.
-
-🌐 Website: spithorst.net
-
-🎮 itch.io: sambono.itch.io
-
-Let's build something amazing! 🚀
-
-
-
+Let's connect and build something incredible together! 🚀
 
