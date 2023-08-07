@@ -19,5 +19,3 @@ Here are some ideas to get you started:
 
 🕹️ Play my games on itch.io: sambono.itch.io
 
-Let's connect and build something incredible together! 🚀
-
